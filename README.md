@@ -5,6 +5,7 @@ Jovens cursando 3º ano E.M. ou iniciando Faculdade de Tecnologia
 
 PERFIL:
 Idade: 17 a 21 anos(Residentes em Osasco);
+
 Que estejam terminando o 3º ano do ensino médio ou cursando Faculdade de Tecnologia;
 
 Disponibilidade:
